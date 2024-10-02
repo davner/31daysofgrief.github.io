@@ -19,6 +19,9 @@ github_username:  davner
 remote_theme: jekyll/minima
 
 google_analytics: G-26GNL7X2VW
+author:
+  name: Dan Avner
+  email: "Email: ldpavner at gmail dot com"
 
 minima:
   skin: dark

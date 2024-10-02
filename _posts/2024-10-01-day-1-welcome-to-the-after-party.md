@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Welcome to the After-Party"
+title:  "Day 1: Welcome to the After-Party"
 date:   2024-10-01 01:17:00 -0700
 ---
 October is a celebration of the dead. And with death everywhere this month, it’s a little easier to talk about.

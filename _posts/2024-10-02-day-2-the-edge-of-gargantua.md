@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "The Edge of Gargantua"
+title:  "Day 2: The Edge of Gargantua"
 date:   2024-10-02 01:17:00 -0700
 ---
 
@@ -18,10 +18,10 @@ I hope this doesn’t come off as ungrateful for the check-ins.
 
 ---
 
-**Grief can disrupt time**. It causes time dilation. making time feel relative and passing differently for the grieving. Sometimes it slows down, making the world blur by, or speeds up, pushing you from one moment to the next.
+**Grief can disrupt time**. It causes time dilation, making time feel relative and passing differently for the grieving. Sometimes it slows down, making the world blur by, or speeds up, pushing you from one moment to the next.
 
 ![Testing time dilation](../../../assets/img/post-2.jpeg)
-*Zoomin' on Dumbo, bending time*
+<p style="text-align: center; font-size: .85rem;"><em>Zoomin' on Dumbo, bending space and time.</em></p>
 
 Grief made me hyperaware of a countdown. Most of my family and friends don’t live in California, so I only see them once or twice a year. **I found myself calculating how many more times I might see them in my lifetime**. It put so much pressure on those moments that I struggled to enjoy them.
 
