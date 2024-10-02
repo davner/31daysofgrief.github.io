@@ -6,7 +6,7 @@ date:   2024-10-02 01:17:00 -0700
 
 I think about time a lot. Especially since moving to Los Angeles, where distances aren’t measured in miles, but in minutes. **Time governs everything**.
 
-It governs everything in my work, too. As a software engineer in time-domain astronomy, I have to be ahead, ready to respond to short-lived events and trigger our telescopes. Time zones are always on my mind, as the telescopes I support are in Chile, Arizona, and Hawaii. Seiously, *fuck daylight savings and  changing clocks*.
+It governs everything in my work, too. As a software engineer in time-domain astronomy, I have to be ahead, ready to respond to short-lived events and trigger our telescopes. Time zones are always on my mind, as the telescopes I support are in Chile, Arizona, and Hawaii. Seriously, *fuck daylight savings and  changing clocks*.
 
 ---
 
