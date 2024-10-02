@@ -10,7 +10,8 @@ domain: 31daysofgrief.com
 url: https://31daysofgrief.com
 title: 31 Days of Grief
 description: >- # this means to ignore newlines until "baseurl:"
-  🖤 Sharing stories, insights, and the hauntingly beautiful journey through loss. Time to be sad, boys.
+  Sharing stories, insights, and the hauntingly beautiful journey through loss.
+  Time to get sad, boys. 🤍
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 github_username:  davner

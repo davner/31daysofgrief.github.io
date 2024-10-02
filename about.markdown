@@ -16,7 +16,7 @@ I'm not an expert on grief—just a guy who loved deeply and lost deeply, and wh
 
 Enjoy.
 
-![Photo of us](assets/about-us.jpeg)
+![Photo of us](assets/img/about-us.jpeg)
 
 
 
