@@ -6,7 +6,9 @@ date:   2024-10-02 01:17:00 -0700
 
 I think about time a lot. Especially since moving to Los Angeles, where distances aren’t measured in miles, but in minutes. **Time governs everything**.
 
-It governs everything in my work, too. As a software engineer in time-domain astronomy, I have to be ahead, ready to respond to short-lived events and trigger our telescopes. Time zones are always on my mind, as the telescopes I support are in Chile, Arizona, and Hawaii. Seiously, *fuck daylight savings* and changing clocks.
+It governs everything in my work, too. As a software engineer in time-domain astronomy, I have to be ahead, ready to respond to short-lived events and trigger our telescopes. Time zones are always on my mind, as the telescopes I support are in Chile, Arizona, and Hawaii. Seiously, *fuck daylight savings and  changing clocks*.
+
+---
 
 I received so much love and support after yesterday's post. The messages from friends and family reminded me of how much time it’s been since I last checked in. For some, their last memory of me is frozen in time, at my lowest moments: the celebration of life for my mom or my sister. A still of me at my lowest.
 
@@ -17,6 +19,9 @@ I hope this doesn’t come off as ungrateful for the check-ins.
 ---
 
 **Grief can disrupt time**. It causes time dilation. making time feel relative and passing differently for the grieving. Sometimes it slows down, making the world blur by, or speeds up, pushing you from one moment to the next.
+
+![Testing time dilation](../../../assets/img/post-2.jpeg)
+*Zoomin' on Dumbo, bending time*
 
 Grief made me hyperaware of a countdown. Most of my family and friends don’t live in California, so I only see them once or twice a year. **I found myself calculating how many more times I might see them in my lifetime**. It put so much pressure on those moments that I struggled to enjoy them.
 
