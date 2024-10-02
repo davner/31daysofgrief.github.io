@@ -8,7 +8,7 @@ Hi, I'm Dan Avner.
 
 I was adopted by an amazing woman, Lillian Avner, along with my biological half-sister, Thea Avner. I grew up never doubting how much I was loved.
 
-On October 17th, 2017, I was woken early in the morning by a phone call—my mother had passed in her sleep. On February 3rd, 2022, I received another early morning call—this time, my sister had passed in her sleep.
+On October 17th, 2017, I was woken early in the morning by a phone call&mdash;my mother had passed in her sleep. On February 3rd, 2022, I received another early morning call&mdash;this time, my sister had passed in her sleep.
 
 The purpose of this site is to spend the month of October sharing and reflecting on my experiences with grief. I hope to inspire others to feel comfortable sharing their own journeys as well.
 

@@ -12,7 +12,7 @@ It governs everything in my work, too. As a software engineer in time-domain ast
 
 I received so much love and support after yesterday's post. The messages from friends and family reminded me of how much time it’s been since I last checked in. For some, their last memory of me is frozen in time, at my lowest moments: the celebration of life for my mom or my sister. A still of me at my lowest.
 
-For many of them, that’s the version they remember. But a lot has happened since then. **I never shared the work I’ve done to heal and process**. `#31DaysOfGrief` isn’t a cry for help—-it’s a reflection. **I truly appreciate the love, but I want you to know I’m doing well**.
+For many of them, that’s the version they remember. But a lot has happened since then. **I never shared the work I’ve done to heal and process**. `#31DaysOfGrief` isn’t a cry for help&mdash;it’s a reflection. **I truly appreciate the love, but I want you to know I’m doing well**.
 
 I hope this doesn’t come off as ungrateful for the check-ins.
 
@@ -31,7 +31,7 @@ To break this habit, I’ve started focusing on quality over quantity. I had to 
 
 But grief, strangely enough, has also taught me how to control time.
 
- Just the other day, I had one of those moments I wanted to hold on to. My family and I were having a cozy night at home. Milly, our pup, was darting back and forth on the couch, chasing her toy while I played with her. Alexis watched us, smiling, as she decorated for Halloween. The Halloween Baking Championship played in the background. Penny, our cat, was curled up in the cozy reading chair.
+Just the other day, I had one of those moments I wanted to hold on to. My family and I were having a cozy night at home. Milly, our pup, was darting back and forth on the couch, chasing her toy while I played with her. Alexis watched us, smiling, as she decorated for Halloween. The Halloween Baking Championship played in the background. Penny, our cat, was curled up in the cozy reading chair.
 
 Suddenly, I felt this wave of awareness wash over me. I realized this was a moment I wanted to remember. To ground myself, I focused on my senses: the feel of the rug under my feet, my clothes on my body, the sound of Milly play-growling back at me, and my breathing. For that moment, I slowed down time. I thought about how much I love this moment, this feeling. For that brief period, I felt like I had all the time in the world to admire my family.
 
