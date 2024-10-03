@@ -32,9 +32,7 @@ As I grew up, though, I started getting glimpses into the complexity of race and
 
 When my mom died, something changed. **Her death triggered deeper feelings of displacement**. My foundation, so firmly built on my mom’s presence, cracked. I felt untethered, and it started me on a journey of searching for my community and my place in the world.
 
-For most of my childhood, I saw myself as white. Being adopted as a toddler into a white family, I had the privileges that came with it. **I was raised by a white, educated, emergency room doctor—my mother—and that was the lens through which I viewed the world.**
-
-*Please note, when I say privilege, that does not mean your life hasn't been challenging, it just means the color of your skin isn't one of the factors that makes it harder.*
+For most of my childhood, I never thought about what I was. **I was raised by a white, educated, emergency room doctor—my mother—and that was the lens through which I viewed the world.**
 
 But when my mom died, those privileges didn’t protect me from the identity crisis that followed. Suddenly, there was a rift between how I was raised and how the world saw me.
 
