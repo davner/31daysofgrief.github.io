@@ -32,7 +32,7 @@ As I grew up, though, I started getting glimpses into the complexity of race and
 
 When my mom died, something changed. **Her death triggered deeper feelings of displacement**. My foundation, so firmly built on my mom’s presence, cracked. I felt untethered, and it started me on a journey of searching for my community and my place in the world.
 
-For most of my childhood, I never thought about what I was. **I was raised by a white, educated, emergency room doctor—my mother—and that was the lens through which I viewed the world.**
+For most of my childhood, I never thought about my race or ethnicity. **I was adopted and raised by a white, educated, emergency room doctor—my mother—and that was the lens through which I viewed and experienced the world.**
 
 But when my mom died, those privileges didn’t protect me from the identity crisis that followed. Suddenly, there was a rift between how I was raised and how the world saw me.
 
@@ -42,7 +42,7 @@ But when my mom died, those privileges didn’t protect me from the identity cri
 
 It was a confusing time, and the cracks in my sense of self widened. **Who was I? Where did I belong?**
 
-I once had someone tell me that my cultural identity didn’t matter&mdash;that I was just me. That felt like an ignorant take. **To me, understanding your background, history, and where you come from is crucial. These elements form the foundation on which you build the person you become.** Ignoring them leaves cracks that can’t be filled by simply being 'you'.
+I once had someone tell me that my cultural identity didn’t matter&mdash;that I was just me. That felt like an privileged take. **To me, understanding your background, history, and where you come from is crucial. These elements form the foundation on which you build the person you become.** Ignoring them leaves cracks that can’t be filled by simply being 'you'.
 
 ---
 
