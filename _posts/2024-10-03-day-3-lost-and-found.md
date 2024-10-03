@@ -42,7 +42,7 @@ But when my mom died, those privileges didn’t protect me from the identity cri
 
 It was a confusing time, and the cracks in my sense of self widened. **Who was I? Where did I belong?**
 
-I once had someone tell me that my cultural identity didn’t matter&mdash;that I was just me. That felt like an privileged take. **To me, understanding your background, history, and where you come from is crucial. These elements form the foundation on which you build the person you become.** Ignoring them leaves cracks that can’t be filled by simply being 'you'.
+I once had someone tell me that my cultural identity didn’t matter&mdash;that I was just me. That felt like a privileged take. **To me, understanding your background, history, and where you come from is crucial. These elements form the foundation on which you build the person you become.** Ignoring them leaves cracks that can’t be filled by simply being 'you'.
 
 ---
 
