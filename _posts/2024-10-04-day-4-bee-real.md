@@ -8,7 +8,7 @@ Not long after my mom passed, I had my best friends over one night in late Octob
 
 We watched *Halloweentown*, a movie I used to watch every Halloween with my mom and sister. It’s a tradition I still keep. That night, with my friends around me, we laughed, made terrible jokes, and Alexis killed an impression of the Cromwell witches chanting to save *Halloweentown*. **Aggie Cromwell would have been proud.**
 
-For a little while, the grief lifted, and I felt surrounded by love.
+For a little while, the grief lifted.
 
 ---
 
