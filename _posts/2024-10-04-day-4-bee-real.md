@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Day 4: Bee Real"
-date:   2024-10-03 01:17:00 -0700
+date:   2024-10-04 01:17:00 -0700
 ---
 
 Not long after my mom passed, I had my best friends over one night in late October. We built a fort in the living room—chairs, cushions, and a giant blanket draped over us, with mattresses underneath. It was one of those forts that make you feel like a kid again.
