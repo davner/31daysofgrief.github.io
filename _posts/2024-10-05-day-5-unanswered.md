@@ -29,6 +29,8 @@ It said:
 >
 >&mdash;Thea&mdash;
 
+She had meant to mail this to me a few weeks before.
+
 I haven’t written back yet. I’ve come so far, but I still freeze at the thought of responding. Tears stream down my face just thinking about it.
 
 I hope by the end of this project, I’ll be strong enough to finally write her back.
