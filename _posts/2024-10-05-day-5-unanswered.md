@@ -33,5 +33,5 @@ I haven’t written back yet. I’ve come so far, but I still freeze at the thou
 
 I hope by the end of this project, I’ll be strong enough to finally write her back.
 
-![Reptar rawr](../../../assets/img/post-5.JPG){:style="display:block; margin-left:auto; margin-right:auto; max-width: 400px;"}
+![Reptar rawr](../../../assets/img/post-5.jpeg){:style="display:block; margin-left:auto; margin-right:auto; max-width: 400px;"}
 <p style="text-align: center; font-size: .85rem;"><em>Nothing to fear.</em></p>
