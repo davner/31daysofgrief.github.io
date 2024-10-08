@@ -14,7 +14,7 @@ We had family there. We’d see the childhood home, meet extended family, and le
 
 It was easy to fall in love with Mazatlán. The city had fully embraced the eclipse. Sun and moon artwork everywhere, parades celebrating the event, concerts, banda music, beautiful beaches. The best ceviche and coconut shrimp I’ve ever had. But most of all, seeing Lilia’s life and learning about the family I’m honored to be a part of.
 
-![Solar eclipse](../../../assets/img/post-7-1.jpeg){:style="display:block; margin-left:auto; margin-right:auto; max-width: 400px;"}
+![Three generations](../../../assets/img/post-7-1.jpeg){:style="display:block; margin-left:auto; margin-right:auto; max-width: 400px;"}
 <p style="text-align: center; font-size: .85rem;"><em>3 generations in front of Lilia's home.</em></p>
 
 Then the day of the eclipse arrived.
@@ -39,7 +39,7 @@ My mom was there that day&mdash;I know it.
 
 I didn’t take a single photo of the eclipse. But I took one video of my family. Capturing the awe, the emotions, the child-like wonder on our faces.
 
-![Solar eclipse with Alexis](../../../assets/img/post-7-2.jpeg){:style="display:block; margin-left:auto; margin-right:auto; max-width: 400px;"}
+![Solar eclipse with Alexis](../../../assets/img/post-7-2.jpeg){:style="display:block; margin-left:auto; margin-right:auto; max-width: 600px;"}
 <p style="text-align: center; font-size: .85rem;"><em>My family.</em></p>
 
 And in my face, the look of a young boy, not just with his family, but with his mom too.
