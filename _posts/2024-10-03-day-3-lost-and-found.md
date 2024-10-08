@@ -19,7 +19,7 @@ My mom tried to deflect. Maybe she wanted to avoid the topic because Thea, who w
 
 One might expect a child to react with shock or disbelief. “My mom isn’t my biological mom?!” But it wasn’t anything like that. My response was simple: “Oh, okay.” I followed up, “Is Thea my sister?” And when my mom said, “Yes, you have the same mom,” I was satisfied. That was all I needed to hear.
 
-![Testing time dilation](../../../assets/img/post-3.jpeg)
+![The wild Thornberrys](../../../assets/img/post-3.jpeg)
 <p style="text-align: center; font-size: .85rem;"><em>Daniel&mdash;we found him. And Thea, she found us.</em></p>
 
 I’m sure my mom was puzzled, maybe even bracing for a more intense reaction. I think Thea was watching me closely too, waiting to see how I’d respond. But I was content. I had my answer, and that was that. My mom was my mom. My sister was my sister. I was a son and a brother.
