@@ -16,7 +16,7 @@ You think grief will unite you, especially when you have shared so much. But ins
 
 For some, it is not out of malice. People often don’t know how to support you, so they don’t. They step back, unsure what to say, afraid of saying the wrong thing. They start to avoid interactions with you. And that absence, becomes louder than any words could be.
 
-I use to blame them. For not showing up. For not knowing how to help me through it. For not standing by me in my grief. I was angry. I felt alone. Most of all, I was deeply hurt, grieving not only the physical loss of my loved ones but also the emotional loss of someone who once meant so much to me.
+I used to blame them. For not showing up. For not knowing how to help me through it. For not standing by me in my grief. I was angry. I felt alone. Most of all, I was deeply hurt, grieving not only the physical loss of my loved ones but also the emotional loss of someone who once meant so much to me.
 
 We all handle loss differently. While I wanted them closer, wanted their presence, maybe they didn’t know how. Maybe they struggled with their own fears of grief. Maybe they didn’t realize how much I needed them until it was too late. **And maybe&mdash;I didn’t give them the chance**.
 
