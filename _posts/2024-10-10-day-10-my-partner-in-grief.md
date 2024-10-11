@@ -16,7 +16,7 @@ Lil was a person unlike anyone I’ve ever met, even till this day. She was a li
 
 Thea was spunky. She loved sharing her most embarrassing memories, talking about the cats, and was a such a foodie. Thea wore her big heart on her sleeve and the people who she loved knew she loved them. Her love language was Facebook memes and taking pictures - she would take the most unflattering pictures of you. Oh Thea! We would say that a lot to her because we had so much love for her, and sometimes chaos would follow her. But who can blame her? Being in your 20s is rough – we don’t need to elaborate –so many people flourish and take off in their 30s. Thea passed away just shy of 30.
 
-_
+---
 
 Both mornings we received news of Lil and Thea passing away were both so intense and strangely similar. Both times, we were sleeping and didn’t wake easily to the many attempts to reach us. Finally, one of us budged and begrudgingly – because it was early – the phone was finally answered. My initial thoughts both mornings were that maybe it was someone butt-dialing us, or maybe, hopefully, spam. Both times Dan’s sobs and pleas spoke the words that were too painful to say.
 
