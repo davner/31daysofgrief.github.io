@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Day 10: My Partner in Grief"
-date:   2024-10-09 01:17:00 -0700
+date:   2024-10-10 01:17:00 -0700
 ---
 
 *Today marks four years of marriage for us. In honor of our day, I asked Alexis to share her perspective on supporting me through my grief. I can’t thank her enough for being my light in the dark. I love you.*
