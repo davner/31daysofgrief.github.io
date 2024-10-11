@@ -6,8 +6,6 @@ date:   2024-10-11 01:17:00 -0700
 
 I’ll never forget the moment I realized my mother wasn’t going to live forever.
 
-We don’t often think about it, but it’s easy to believe our parents will always be there. That they’ll never really be gone. I held onto that belief too—until August of 2017.
-
 My mother had called me, she was being admitted into the hospital. I flew in on that redeye, driving from Orlando to my hometown. She woke up when I entered. She started crying.
 
 *I’m sorry for making you come here.*
