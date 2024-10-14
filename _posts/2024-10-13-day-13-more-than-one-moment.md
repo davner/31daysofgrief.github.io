@@ -30,9 +30,9 @@ Something clicked. They were right. It was so simple for my situation.
 
 ---
 
-Our relationship wasn’t shaped by that one moment—it was built over years of conversations, support, and mutual respect. My mom knew who I was, just like I knew her. We weren’t perfect, but we didn’t need to be.
+Our relationship wasn’t shaped by that one moment&mdash;it was built over years of conversations, support, and mutual respect. My mom knew who I was, just like I knew her. We weren’t perfect, but we didn’t need to be.
 
-The weight of that final moment started to lift.
+**The weight of that final moment started to lift.**
 
 Some relationships aren’t about single moments. They’re about the years of love and care shared between you. I realized I couldn’t let one bad moment erase all of that. No final conversation could take away the bond we had. I could forgive myself.
 
