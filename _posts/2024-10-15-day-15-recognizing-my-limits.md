@@ -6,7 +6,9 @@ date:   2024-10-15 01:17:00 -0700
 
 Pouring my heart into *31DaysofGrief* has been a journey unlike any other.
 
-It’s been a while since I’ve felt so passionate about a project. Each post takes hours of revision, reflection, and revisiting my grief. The messages, calls, and conversations that have come out of it, both with old friends and new, are moments I will treasure. I’ve learned from all of you, rekindled friendships, found closure, and deepened bonds. In a way, I’ve built a community. ***We built a community.***
+It’s been a while since I’ve felt so passionate about a project. Each post takes hours of revision, reflection, and revisiting my grief. The messages, calls, and conversations that have come out of it, both with old friends and new, are moments I will treasure. I’ve learned from all of you, rekindled friendships, found closure, and deepened bonds. In a way, I’ve built a community.
+
+***We built a community.***
 
 ---
 
